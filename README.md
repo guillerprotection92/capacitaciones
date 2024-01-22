@@ -1,14 +1,6 @@
 
 
-**GUILLERMO GUTIERREZ IBAÑEZ – GENERAL PROTECTION
-CAPACITACIÓN – CERTIFICACIÓN**
 
-* Vehículos de transporte de pasajeros y/o carga
-* Mercancías peligrosas
-* Montacargas
-* Manlift
-* telehander
-* Maquinaria amarilla (pesada)
                        
 
 **GUILLERMO GUTIERREZ IBAÑEZ – GENERAL PROTECTION
